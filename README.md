@@ -1,4 +1,5 @@
-<img width="1671" height="941" alt="file_000000002acc8246ae065196ffec19ac (1)" src="https://github.com/user-attachments/assets/31e8c9f2-13d2-4530-835a-6a23504be30b" />
+<img width="1680" height="936" alt="file_000000001418821095b9d1ee79132034" src="https://github.com/user-attachments/assets/5f7a77eb-e0ba-4710-8c69-303decbe2457" />
+
 
 
 ### WHAT HAPPENS WHEN INTELLIGENCE BECOMES INFRASTRUCTURE?
